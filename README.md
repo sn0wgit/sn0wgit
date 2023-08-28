@@ -2,7 +2,7 @@
 
 👀 I’m interested in visual content creating for web
 
-📫 Contacts: telegram/@sn0wgram, discord/sn0wcat#7628, vkontakte/@sn0wcat
+📫 Contacts: discord@sn0wcat
 
 You can also find me on other platforms! At most of them I use "sn0wcat" or something, that starts with "sn0w..."
 <!---
